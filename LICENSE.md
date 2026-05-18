@@ -1,4 +1,4 @@
-# 
+# vip JetBrains PyCharm para PC executor é o melhor JetBrains PyCharm para PC executor com depurador e depuração. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
